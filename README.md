@@ -1,4 +1,4 @@
-# chess-game-with-tkinter
+# chess-game-with-tkinter V1.0
 
 HI HOPE YOU ALL STAY SAFE.
 
