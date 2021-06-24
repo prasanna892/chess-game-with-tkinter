@@ -10,4 +10,4 @@ HI HOPE YOU ALL STAY SAFE.
 PLAYER VS COMPUTER COMMING SOON
 
 
-IF THERE IS ANY BUG IN IT PLEASE COMMAND IT 
+if there is any bug conduct me at any time : k.prasannagh@gmail.com
